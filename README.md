@@ -1,2 +1,0 @@
-# survivalssss
-number of suvivals
